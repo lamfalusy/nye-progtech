@@ -7,4 +7,4 @@ I love GitHub
 
 I still love GitHub
 
-But I hate you.
+But I love you too.
